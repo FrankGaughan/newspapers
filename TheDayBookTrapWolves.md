@@ -1,12 +1,14 @@
-Fred Feller. “How I Trap Wolves.” The Day Book. (Chicago, Ill.) 1911-1917, July 05, 1912, Image 11,” July 5, 1912. http://chroniclingamerica.loc.gov
+Fred Feller. “How I Trap Wolves.” *The Day Book.* (Chicago, Ill.) 1911-1917, July 05, 1912. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
+***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HcFMwOGI1cnMzWGs
+***
 HOW I TRAP WOLVES—BY CHAMPION BOY TRAPPER
 ________
 
-Fred Feller, Aged 16, of Northeastern Utah, Tells The Day Book Readers, Including Old Boys, How He Catches Dangerous Wolf and Cowardly Coyote—His Rule for the Trapping Game.
+Fred Feller, Aged 16, of Northeastern Utah, Tells *The Day Book* Readers, Including Old Boys, How He Catches Dangerous Wolf and Cowardly Coyote—His Rule for the Trapping Game.
 ________
 
-Not long ago an item appeared in a little western paper which told of a boy in northwestern Utah who had received $1,070 in bounties for wolves and coyotes he had trapped. He is Fred Feller, 16 years of age, whose father has a farm, or ranch, as they call them in the west, in northeastern Utah. The editor of The Day Book thought Fred might have a pretty good story to tell the boys, including old boys, so he wrote to Fred at his home near Randolph, Utah, and offered to add to his little bank account if he would write the story on how to trap wolves and coyotes. The following is the reply. You must bear in mind that Fred is not, as he tells the editor, a college product, but has lived all his life in sparsely settled country, where schools are few.
+Not long ago an item appeared in a little western paper which told of a boy in northwestern Utah who had received $1,070 in bounties for wolves and coyotes he had trapped. He is Fred Feller, 16 years of age, whose father has a farm, or ranch, as they call them in the west, in northeastern Utah. The editor of *The Day Book* thought Fred might have a pretty good story to tell the boys, including old boys, so he wrote to Fred at his home near Randolph, Utah, and offered to add to his little bank account if he would write the story on how to trap wolves and coyotes. The following is the reply. You must bear in mind that Fred is not, as he tells the editor, a college product, but has lived all his life in sparsely settled country, where schools are few.
 ________
 
 By Fred Feller, Jr., of Randolph, Utah.
