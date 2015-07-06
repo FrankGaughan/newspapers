@@ -1,13 +1,11 @@
-“Coyote and Jack Rabbit.” Los Angeles Herald. (Los Angeles [Calif.]) 1900-1911, April 15, 1906. http://chroniclingamerica.loc.gov
+“Coyote and Jack Rabbit.” *Los Angeles Herald.* (Los Angeles [Calif.]) 1900-1911, April 15, 1906. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
+
+***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HVFhqd1lFZ3FrX1E
-BOYS' AND GIRLS' MAGAZINE SECTION
-
-……………………………………………………………………………………………………………………………
-
+***
 COYOTE AND JACK-RABBIT
 
 Copyright by James Elverson.
-
 
 The "ky-o-tey," as he is called in Texas, is the pest of all new prairie settlements in the West; and his lean, grizzled figure and his nightly yelps are almost as familiar local characteristics, in the natural-history attainments of the Western boy, as are the dapper form and shrill cry of the blue jay in those of the boy who lives further East.
 
@@ -74,55 +72,3 @@ At last they came nearly straight toward me, and the poor jack looked as though 
 "Poor fellow! You do not know it, but you are in luck for once, and have a friend at hand. Though at another time he might take your life as relentlessly and far more speedily than a pair of yelping coyotes, yet this time you shall go 'scot free,' if there's any faith in a first-class shotgun," was my mental reflection.
 
 I brought the weapon to my face, and, as they went whizzing past, not twenty yards away, the right barrel called a peremptory halt to the eager coyote, and, dropping in his tracks, he rolled over and over, literally riddled by a charge of No. 3. His companion was off like the wind, but a shot from the other barrel knocked him over, also, with two broken legs, and still another from the hastily-reloaded gun ended his miserable life.
-
-……………………………………………………………………………………………………………………………
-
-A Fishy Ceremony
-
-Codd—Fish—Sturgeon.—The marriage records
-of Christ Church, Philadelphia, under
-date of March 5, 1756, chronicle the marriage
-of John Codd to Mary Fish. The Rev. William Sturgeon performed the ceremony.
-________
-
-Teacher (to small boy)—Spell neighbor.
-"N-e-e-i-g-h-b-o-r."
-"Give a definition of the word."
-"Folks that borrer things," smartly answered the urchin.
-
-……………………………………………………………………………………………………………………………
-
-Easter Eggs
-
-Continued From Preceding Page
-________
-
-"I want to ask your forgiveness. I broke them by accident, and I was afraid to say so."
-
-"You?" Jeddie exclaimed, drawing back from him.
-
-"Don't feel hard toward me, for I have been unhappy ever since. I could not rest until I brought myself to take the money I had saved up for a watch, and use it to save you. I thought I could make it all right with the stationer by paying him. But he wouldn't believe me at first, and when at last he took the money he said he couldn't bother about you until Monday."
-
-Jeddie uttered an exclamation, and Horton continued:
-
-"You may be sure I was angry when he said a night or two in jail wouldn't hurt you. Then I knew I must go to my father. I was ashamed to have him know, but I was determined you should be free to-night. Father soon made that stationer do what was right!"
-
-Jeddie was so full of wonder that for a moment he could not speak. Then, as manfully as Horton had asked, he gave forgiveness.
-
-"It has been as hard for you as for me, I guess," Jeddie said. "So we will both be glad it has come out all right in the end."
-
-Mr. Bond laid a hand upon his shoulder.
-
-"That is the true spirit, my boy. Horton and I are not going to lose sight of you now. When you are through going to school, perhaps I can put you in the way of helping your dear sister."
-
-"And I want you to take this," Horton added, breathlessly. "Father settled with the stationer, so my money came back to me. It is for you."
-
-This was Horton's Easter offering—a sacrifice and an atonement.
-
-Jeddie hesitated, but reading Horton's wish, accepted the gift.
-
-"It is like coming into a new life," he said, joyously. "That is what they mean—these Easter eggs, isn't it?—a new and better life?"
-
-Horton drew a deep breath. For him, too, these broken eggs had a significance. He felt that he never could be cowardly again.
-
-"The Easter bells will ring pleasantly for us both now, Jeddie," he responded.
