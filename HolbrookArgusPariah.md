@@ -1,5 +1,8 @@
-“Pariah of the Skyline.” Holbrook Argus. (Holbrook, Ariz.) 1900-1913, August 06, 1904, Image 3,” August 6, 1904. http://chroniclingamerica.loc.gov/
+“Pariah of the Skyline.” *Holbrook Argus.* (Holbrook, Ariz.) 1900-1913. August 6, 1904. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
+
+***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HUTZDT2QxeVU5UXc
+***
 PARIAH OF THE SKYLINE.
 Coyote Always a Tantalizing Mark for the Man with a Rifle.
 
