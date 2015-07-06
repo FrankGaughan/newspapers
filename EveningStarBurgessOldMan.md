@@ -25,9 +25,6 @@ Johnny Chuck made no reply, save to growl and grit his teeth and try to make him
 Still Johnny Chuck said nothing, but he had stopped shaking with fear. He was growing angrier every second. He knew that Old Man Coyote was simply trying to torment him for fun, just as Black Pussy, the cat at Farmer Brown's house, torments a mouse she has caught. Johnny wished that Old Man Coyote would hurry up and attack him. He knew that he hadn't much chance against Old Man Coyote, but it would be better to have it over with. Johnny meant to fight just as long as there was a breath in him.
 
 But Old Man Coyote wasn't in a hurry. You know there is a lot of pleasure in thinking about something you are presently going to enjoy. Old Man Coyote felt absolutely sure of a good breakfast, and he enjoyed thinking about it. He couldn't see a possible way of escape for Johnny Chuck and so he wasn't in any hurry to put an end to Johnny and his troubles. He made two or three short rushes at Johnny as if to seize him, and then backed away, pretending that he was afraid. It was very hard on Johnny Chuck, but it was fun for Old Man Coyote. But at last there was a change in Old Man Coyote. A fierce glare crept into his eyes. The hair on his shoulders rose ever so little. Johnny Chuck knew that Old Man Coyote was about to end his fooling, and just then, for the first time. Johnny remembered Jimmy Skunk and wondered what had become of him. "A nice sort of friend he is," thought Johnny Chuck, bitterly.
-________
 
 (Copyright, 1920, by T. W. Burgess.)
-________
 
-Lady Geddes, wife of the new British ambassador, although born in New York, is not an American. Her father was not naturalized in this country.
