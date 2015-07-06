@@ -1,14 +1,8 @@
-Thornton W. Burgess. “Danny Meadow Mouse Shivers and Shakes.” Little Stories of Bedtime. Evening Star. (Washington, D.C.) 1854-1972. November 20, 1916.
+Thornton W. Burgess. “Danny Meadow Mouse Shivers and Shakes.” Little Stories of Bedtime. *Evening Star*. (Washington, D.C.) 1854-1972. November 20, 1916. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
+
 View PDF Here: https://drive.google.com/open?id=0B3jjm_N_Qi2HZmFJOGctVGlheWc
-Little Stories for Bedtime
-________
 
-By Thornton W. Burgess.
-(Copyright, 1916, by T. W. Burgess.)
-________
-
-Danny Meadow Mouse Shivers and Shakes.
-________
+"Danny Meadow Mouse Shivers and Shakes"
 
 "A-H-H-H!" exclaimed Old Man Coyote as he sniffed along the edge of the pile of brush under which Danny Meadow Mouse had stopped to rest on his way to see the Great World.
 
@@ -48,4 +42,4 @@ It was lucky he did, very lucky. Abruptly Old Man Coyote stopped tearing at the 
 
 "Perhaps he's right," whimpered Danny to himself, "but while there's life there's hope. He hasn't got me yet."
 
-Then for the first time he noticed something which he had been too frightened to noticed before. It was a little ridge of earth and it was soft as if recently pushed up from beneath. It took Danny just about one teeny weeny second to jump up on top of it and begin to dig, and as he dug all fear of Old Man Coyote left him. He actually chuckled himself. He had found a way to escape.
+Then for the first time he noticed something which he had been too frightened to notice before. It was a little ridge of earth and it was soft as if recently pushed up from beneath. It took Danny just about one teeny weeny second to jump up on top of it and begin to dig, and as he dug all fear of Old Man Coyote left him. He actually chuckled himself. He had found a way to escape.
