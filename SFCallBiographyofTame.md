@@ -1,8 +1,8 @@
-Madge Morris. Biography of a Tame Coyote.  The San Francisco Call. (San Francisco [Calif.]) 1895-1913, July 27, 1902 July 27, 1902. http://chroniclingamerica.loc.gov/
+Madge Morris. Biography of a Tame Coyote.  *The San Francisco Call.* (San Francisco, CA) 1895-1913, July 27, 1902   Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
+
+***
 PDF Version available here: https://drive.google.com/open?id=0B3jjm_N_Qi2HOE5hZGhpdzFBTWc
-
-THE SUNDAY CALL
-
+***
 BIOGRAPHY OF A TAME COYOTE.
 By Madge Morris
 
@@ -10,7 +10,6 @@ The shadowy gray coyote, born afraid,
 Steals to some brackish spring and laps and prowls
 Away, and howls, and howls, and howls, and howls,
 Until the solitude is shaken with an added loneliness.
-________
 
 That is a good deal like us; we are a sort of "shadowy gray," like the twilight, and I think we are "born afraid." But a coyote will fight when it cannot do anything else, as I shall presently tell you. It is likewise true that we "howl and howl and howl and howl," and besides all these we are the most notorious chicken thieves on record. So you see, according as it is written down, I am a coward and a thief, but the Great Maker of all things made me a coyote, and I could not be a grizzly bear nor an honest little cottontail rabbit if I tried; therefore, I am a coyote to the best of my ability.
 
