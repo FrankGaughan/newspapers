@@ -1,4 +1,4 @@
-Madge Morris. Biography of a Tame Coyote.  *The San Francisco Call.* (San Francisco, CA) 1895-1913, July 27, 1902   Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
+Madge Morris. "Biography of a Tame Coyote."  *The San Francisco Call.* (San Francisco, CA) 1895-1913, July 27, 1902   Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
 PDF Version available here: https://drive.google.com/open?id=0B3jjm_N_Qi2HOE5hZGhpdzFBTWc
@@ -111,67 +111,3 @@ Yes, they think I am tamed. They think I enjoy this sort of existence—the nois
 They do not know when the wind blows and the ocean roars that my bristles raise with the longing for freedom. They do not know when the twilight begins to fall how my foot soles tingle to bound over the plains and seek my wild den in the earth.
 
 So I lie here on the sidewalk in the sun and listen to the buzzing flies, and they call me a tame coyote.
-
-…………………………………………………………………………………………………………………….
-
-TIME WHEN BRET HARTE DROVE THE COACH.
-
-Bret Harte’s death recalls an incident which left its mark. Twenty years ago I was a traveler in a Western stage coach very similar to that which Colonel W. F. Cody exhibits in his Wild West. My fellow passenger had done his best to be agreeable and had succeeded. Late in the day he told me the following story:
-
-"I am afraid I have wearied you with so much talk. I confess it may have been selfish in me to have done so. But ever since a little experience I had in one of these coaches some years ago I have made up my mind to keep very much awake when I have but one companion, as I have had to-day.
-
-"It was a stormy night that two passengers climbed inside of a coach like this which pulled out of a California town. I was one of the passengers. The other was disposed to be sociable, but I did not meet him. I quickly discovered that he knew how to talk, and that he was no ordinary pilgrim. But I was tired. I had had little or no sleep for three nights. I took it for granted that we would be together the next day and I resolved that I would show him then that I could listen.
-
-"He seemed quite inclined, however, to be communicative. I fell asleep in the midst of several stories, which I knew were away out of the ordinary stage coach tales. But, in spite of this, I would fall asleep in the climax. When I would rouse myself my fellow-traveler would start on another story. While wondering how the previous one had ended I fell asleep in the same way in each succeeding story.
-
-"Somewhere on the mountain road the storm passed, or we passed it, I don't know which. I remember I looked out and saw the stars. I looked up and saw the snow was glinting on the mountain tops. Then I noticed that my companion was gone. In his place was another passenger. I recognized him at once as the driver, or he who was on the box when we left earlier in the evening. He seemed to be asleep, but I was now wide awake. I shook him. It required some effort to bring him out of his stupor.
-
-" 'What are you doing in here?' I asked.
-
-"He replied that he was trying to sleep, and did not know why he should not be permitted to do so.
-
-" 'Where is the passenger who got in here with me?' I inquired.
-
-" 'Drivin', up there; he knows the road,' was the answer I got.
-
-" 'Does the company allow its drivers to turn over the reins to any passenger who comes along, and does it permit its drivers to ride in the coaches?' I asked, somewhat indignantly.
-
-" 'To — with, the company,' he replied. 'The man that's out there on the box knows more about this country than the whole stage company. He's human, and that sort's skase. Understand? When we stopped back yonder to tighten a nut he got out and gimme a hand. We'd been thar yit but ter him. Then he fall to a questionin' me, and when he finds out I ain't had no lay-off in purty nigh fifty hours, he says to me: "Git inside thar and I'll see that "we git thar," he says. "Go in," he says, "or I'll leave you on the road." So I got in. He got up. That's all that is to it. How do you like it? Ain't skeered, are you?'
-
-"I made no reply. I crouched down in my corner and closed my eyes. It was daylight in the mountains when I awoke. The summits were aglow with sunshine. I was alone. Then we pulled into another wooden town, similar to the one we had left the night before. I got out and shook myself while the relay was being made.
-
-" 'Where's your partner who drove for you?' I asked the driver, who was biting off a section of long plug.
-
-" 'He left me some miles back,' was the reply. 'Said he had to do some business for the State. Said to give you his—I don't just remember what it was.'
-
-" 'Compliments?' I inquired.
-
-" 'That sounds somethin' like it. Reckon it was. Said for me to give you this when you woke up, if you ever did.'
-
-"He handed me a card as he spoke. I did not recognize the name then, but I put the card away as a souvenir of the journey. Some years later, in looking over a bundle of papers, it turned up. The signature was a trifle dim, but there it was, written diagonally, 'Francis Bret Harte.' The card is under a glass paperweight on my desk in my office in Los Angeles. Money couldn't buy it. But think of what I missed in not staying awake."
-
-…………………………………………………………………………………………………………………….
-
-FINES FOR ACTORS ON THE ENGLISH STAGE.
-
-A recent conversation the writer had with an actor of versatile experience on the subject of stage offenses and their resultant penalties elicited the following authentic and informing details:
-
-In order to insure decorous behavior in the theater and on the stage most managers have a code of rules for actors and actresses, and any breach of these regulations is punished by a fine in proportion to the offense committed. For example, if any actor or actress perpetrates the grievous error of "gagging" (introducing observations of their own which are not written in the play), the flagrant folly is brought home to them by the forfeit of a heavy fine—never les than a day's salary, and I have known some martinet managers who have made it a week's salary.
-
-In many theaters it is a rule to fine an actor if he fails to take his "cue," and the delinquent in this case generally has to hand over half a crown. In one theater with which I am well acquainted it is permissible to send for refreshments of a certain kind, but meat and fish are strictly barred, and one unhappy culprit whom the manager found eating tinned salmon in a dressing-room had to pay a fine of 10 shillings and received a verbal castigation as well.
-
-When a dramatic company is touring in the provinces it is often the rule for actors to find their own outfit, and under such circumstances a man may be penalized for not appearing in sufficient smart apparel for the part he is playing. In instances of this kind the fine is generally 5 shillings.
-
-If an actor breaks the important rule which prohibits smoking in the dressing-room he lays himself open to a fine of a half-guinea at least, and a second offense will probably mean dismissal. Many managers are naturally severe on smoking because of the risk of fire, and I have known more than one man sent away for a breach of this reasonable regulation.
-
-Bad language is the particular bogey of other managers, and if the dialect of an actor behind the scenes is unparliamentary and the expressions reach the ear of the manager the punishment is prompt and emphatic. One actor of my acquaintance had to forfeit a week's salary for allowing his tongue too much liberty in this respect.
-
-At one well-known theater, famous for its ballets, the ladies of the ballet are fined a florin if they are seen talking on the stage during a public performance, and any notable laxity in dress or demeanor is visited by a fine of a half-crown.
-
-When rehearsals for a pantomime are proceeding there are some managers who are very severe on those who show lack of attention or who fail to perform their role with alertness. After one curt warning a fine of 5 shillings is sometimes demanded in cases where the culprit repeats the offense.
-
-One manager I know is a keen critic on the "make-up" of an actor, and any negligence in this respect is punished by a fine, which often means a day's salary. The old members of his company are aware of this managerial requirement and protect themselves accordingly, but newcomers are occasionally caught napping.
-
-As an interesting contrast anent the opinion of certain actor-managers on the subject of jewelry, I may tell you that one gentleman has on more than one occasion fined the actors at his theater for displaying too much jewelry on the stage while another autocrat insists that the leading gentleman of his company shall wear a showy watch chain.
-
-Unpunctuality is the particular aversion of a certain manager in the West End, and to "keep the stage waiting" is in his opinion the worst offense an actor can commit. Those who incur his wrath for this dereliction of duty have to forfeit three days' salary, and if the offense is repeated receive a week's notice to quit.— London Titbits.
