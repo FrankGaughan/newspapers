@@ -1,5 +1,9 @@
-“County Varmint Fund Tapped Twice in a Day.” Daily Capital Journal. (Salem, Or.) 1903-1919, September 08, 1919.
+“County Varmint Fund Tapped Twice in a Day.” *Daily Capital Journal.* (Salem, Or.) 1903-1919, September 08, 1919.
+
+***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HUGUwcFp3UGI0RlE
+***
+
 COUNTY VARMINT FUND TAPPED TWICE IN DAY
 Silverton Man Claims Reward On Coyote And Bobcat This Week.
 
