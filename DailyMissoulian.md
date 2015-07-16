@@ -1,4 +1,8 @@
-“The Daily Missoulian. (Missoula, Mont.) 1904-1961, December 17, 1911. http://chroniclingamerica.loc.gov/
+A.L.S."Following Old Trails"  *The Daily Missoulian.* (Missoula, Mont.) 1904-1961, December 17, 1911. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
+
+***
+PDF of original newspaper image can be found here: https://drive.google.com/drive/folders/0B3jjm_N_Qi2HfjFoak1QaUZVdWtlN2lCRjJlck9vcmFYWGEzTEFXRkpsM1M2a1pwdG53REE
+***
 
 Following Old Trails
 XXVII.—The Dragon of the Selish.
