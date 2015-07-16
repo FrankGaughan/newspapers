@@ -1,4 +1,4 @@
-“The Coyote a Pest But The Pelt Worth Money.” *The Colville Examiner.* (Colville, Wash.) 1907-1948, February 01, 1919.
+“The Coyote a Pest But The Pelt Worth Money.” *The Colville Examiner.* (Colville, Wash.) 1907-1948, February 01, 1919. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 ***
 PDF Version Available here: https://drive.google.com/open?id=0B3jjm_N_Qi2HSk00dkNqVDUxbFE
 ***
