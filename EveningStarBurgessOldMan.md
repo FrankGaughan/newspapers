@@ -1,6 +1,9 @@
 Burgess, Thornton. "Old Man Coyote Takes His Time." _Evening Star_.
-(Washington, D.C.) 1854-1972, March 26, 1920, Image 15,” March 26, 1920. http://chroniclingamerica.loc.gov
+(Washington, D.C.) 1854-1972, March 26, 1920. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
+
+***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HOG5mUWJZd1V1LWc
+***
 Little Stories for Bedtime
 By Thornton W. Burgess.
 ________
