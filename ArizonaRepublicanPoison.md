@@ -1,6 +1,7 @@
 “U.S. Introduces New Coyote Poison To Kill Off Pest.” *Arizona Republican*. (Phoenix, Ariz.) 1890-1930. March 28, 1920.
+***
 Note: PDF version of original here: https://drive.google.com/open?id=0B3jjm_N_Qi2HZ2lqWGJTTWJQX28
-
+***
 U.S. INTRODUCES A NEW COYOTE POISON TO KILL OFF PEST
 
 Since coyote pelts are bringing record breaking prices in the domestic fur market and the extermination of this beast of prey is being sought by practically all the cattlemen in Arizona, especial interest is being attached to the government's introduction of a new poison tablet which has almost exterminated this animal in some sections of the state.
