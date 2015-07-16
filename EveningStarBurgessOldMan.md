@@ -6,7 +6,6 @@ View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HOG5mUWJZd1V1LWc
 ***
 Little Stories for Bedtime
 By Thornton W. Burgess.
-________
 
 Old Man Coyote Takes His Time.
 
