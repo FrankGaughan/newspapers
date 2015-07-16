@@ -1,4 +1,4 @@
-“U.S. Introduces New Coyote Poison To Kill Off Pest.” *Arizona Republican*. (Phoenix, Ariz.) 1890-1930. March 28, 1920.
+“U.S. Introduces New Coyote Poison To Kill Off Pest.” *Arizona Republican*. (Phoenix, Ariz.) 1890-1930. March 28, 1920. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 ***
 Note: PDF version of original here: https://drive.google.com/open?id=0B3jjm_N_Qi2HZ2lqWGJTTWJQX28
 ***
