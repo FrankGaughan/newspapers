@@ -1,3 +1,13 @@
+---
+layout: source
+title: County Varmint Fund Tapped Twice in a Day
+category: Newspapers
+pubdate: 1919-09-08
+source: Library of Congress
+type: article
+tags: Coyote and bounty payments
+---
+
 “County Varmint Fund Tapped Twice in a Day.” *Daily Capital Journal.* (Salem, Or.) 1903-1919, September 08, 1919. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 
 ***
