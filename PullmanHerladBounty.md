@@ -1,3 +1,5 @@
+Done 
+
 “Bounty on Varmints.” *Pullman Herald.* (Pullman, W.T. [Wash.]) 1888-1989, May 6, 1905. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
