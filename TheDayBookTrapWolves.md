@@ -1,3 +1,5 @@
+
+Done 
 Fred Feller. “How I Trap Wolves.” *The Day Book.* (Chicago, Ill.) 1911-1917, July 05, 1912. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 ***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HcFMwOGI1cnMzWGs
