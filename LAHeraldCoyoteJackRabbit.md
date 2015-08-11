@@ -1,3 +1,7 @@
+
+DDOne 
+
+
 “Coyote and Jack Rabbit.” *Los Angeles Herald.* (Los Angeles [Calif.]) 1900-1911, April 15, 1906. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
