@@ -1,3 +1,5 @@
+
+Done 
 "U.S. Ranger is Champion Coyote Killer." *The Day Book*. (Chicago, Ill.), 24 Feb. 1914. Chronicling America: Historic American Newspapers. Lib. of Congress. 
 
 View PDF (and newspaper image) here: https://drive.google.com/file/d/0B3jjm_N_Qi2HdnFBRkRkTVA0TEk/view?usp=sharing
