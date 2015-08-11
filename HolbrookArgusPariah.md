@@ -1,3 +1,5 @@
+Done 
+
 “Pariah of the Skyline.” *Holbrook Argus.* (Holbrook, Ariz.) 1900-1913. August 6, 1904. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
