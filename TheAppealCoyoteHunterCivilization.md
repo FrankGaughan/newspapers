@@ -1,3 +1,5 @@
+Done 
+
 "Coyote Hunter Advance Agent of  Civilization." *The Appeal*. (Saint Paul, Minn. ;) 1889-19??, August 24, 1907 Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
