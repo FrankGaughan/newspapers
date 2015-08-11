@@ -1,3 +1,5 @@
+Done 
+
 A.L.S."Following Old Trails"  *The Daily Missoulian.* (Missoula, Mont.) 1904-1961, December 17, 1911. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 
 ***
