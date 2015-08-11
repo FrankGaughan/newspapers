@@ -1,3 +1,5 @@
+Done 
+
 “M’Kay Creek Rancher Has an Exciting Adventure With Mad Coyote; Brute Finally Killed.” *East Oregonian, Daily Evening Edition.* (Pendleton, Umatilla Co., Or.) February 24, 1915. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 
 ***
