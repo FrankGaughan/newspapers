@@ -1,3 +1,5 @@
+Done 
+
 Burgess, Thornton. "Old Man Coyote Takes His Time." _Evening Star_.
 (Washington, D.C.) 1854-1972, March 26, 1920. Chronicling America: Historic American Newspapers. Lib. of Congress. <http://chroniclingamerica.loc.gov/>
 
