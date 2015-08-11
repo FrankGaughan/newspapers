@@ -1,3 +1,5 @@
+Done 
+
 "The Artful Coyote." *Ranch and Range*. (North Yakima, Wash.) 1897-1902. September 15, 1898. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 ***
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HN3JwV0VQX01SbUE
