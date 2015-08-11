@@ -1,3 +1,5 @@
+Done 
+
 Burgess, Thornton. “Old Man Coyote Gives Up His Home.” *Grand Forks Daily Herald* (Grand Forks, N.D.) 1914-1916, November 09, 1914. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/ 
 ***
 PDF Version Here: https://drive.google.com/open?id=0B3jjm_N_Qi2HLV9FalpEaDRSblE
