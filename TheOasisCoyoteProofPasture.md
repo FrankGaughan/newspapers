@@ -1,3 +1,5 @@
+Done 
+
 "Coyote-Proof Pasture." *The Oasis*. (Arizola, Ariz.) 1893-1920, August 06, 1910. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov
 
 ***
