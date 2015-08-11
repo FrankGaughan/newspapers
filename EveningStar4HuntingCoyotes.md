@@ -1,3 +1,5 @@
+Done
+
 “Hunting Coyotes Jolly Good Sport.” *Evening Star*. (Washington, D.C.) 1854-1972. May 14, 1905. Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 View PDF: https://drive.google.com/open?id=0B3jjm_N_Qi2HMlBKNGQ0YzY3MXc
