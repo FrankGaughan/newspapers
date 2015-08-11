@@ -1,3 +1,5 @@
+Done 
+
 Madge Morris. "Biography of a Tame Coyote."  *The San Francisco Call.* (San Francisco, CA) 1895-1913, July 27, 1902   Chronicling America: Historic American Newspapers. Lib. of Congress. http://chroniclingamerica.loc.gov/
 
 ***
